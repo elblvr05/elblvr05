@@ -30,3 +30,14 @@ In this page, you shall get to know who I am more and how I view my life! This p
 ### Here is our family picture! 👪
 
 ![fam](https://user-images.githubusercontent.com/98244023/165533835-b9e0e8d0-8fa6-43a7-a950-bc7590a28a5e.jpg)
+
+Woo! 😅 That was a long introduction! But we've only just began, next up are my Interests. So, if my interests sound interesting ~~pun intended haha~~, stay here and get to know me more!
+
+
+
+
+
+
+
+
+
