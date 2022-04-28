@@ -27,16 +27,38 @@ In this page, you shall get to know who I am more and how I view my life! This p
 > Siblings?
 - I have three siblings. The eldest is _Karl Marko D. Bolivar_, My older sister _Nicole Alexandra D. Bolivar_, and my younger sister, who is the youngest among everyone, _Ana Mikaela D. Bolivar_. **I am the third child, yes, I am the middle child. Technically, there is no middle since we're only 4 but-**
 
+> Pets?
+- Two dogs! One Japanese Spitz-Pomeranian mix and the cutest Aspin I have ever seen!
+
+> Friends?
+- A lot. I can't mention them all 🥲
+
 ### Here is our family picture! 👪
 
 ![fam](https://user-images.githubusercontent.com/98244023/165533835-b9e0e8d0-8fa6-43a7-a950-bc7590a28a5e.jpg)
 
 Woo! 😅 That was a long introduction! But we've only just began, next up are my Interests. So, if my interests sound interesting ~~pun intended haha~~, stay here and get to know me more!
 
+_mini commercial break_ 🤩
 
+![34a70b676136697883ee08223153115c](https://user-images.githubusercontent.com/98244023/165758694-69a46dee-1a50-41c6-949e-1bac61faa31a.jpg)
 
+## Interests
 
+> Favorite color?
+- I like a lot of colors but Black is on the top of my list.
 
+> Favorite time of the week?
+- Friday night and Saturday morning! 
+
+> Favorite food?
+- I. Love. Food. But Pizza is my no. 1 ever since I got a taste of that heavenly bread! 😍
+
+> Favorite drink?
+- Iced Coffee. The best.
+
+> Favorite Ice Cream Flavor?
+- COOKIES AND CREAM SUPREMACY!!
 
 
 
