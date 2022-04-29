@@ -61,7 +61,7 @@ Woo! 😅 That was a long introduction! But we've only just begun, next up are s
 - I don't think I have one, they are all equal to me <3 
 
 > My favorite movie?
-- I don't watch movies that much but the three Fear Street movies (Fear Street Part One: 1994, Fear Street Part Two: 1978, and Fear Street Part Three: 1666) are one of the best I have watched! I suggest it!
+- I don't watch movies that much but the three Fear Street movies (Fear Street Part One: 1994, Fear Street Part Two: 1978, and Fear Street Part Three: 1666) are three of the best movies I have watched! I suggest it!
 
 > My favorite book?
 - It has to be Stay Awake, Agatha by SERIALSLEEPER.
@@ -73,7 +73,7 @@ Woo! 😅 That was a long introduction! But we've only just begun, next up are s
 - Fort Santiago in Intramuros, Manila.
 
 > My favorite song at the moment?
-- Pity Party by Melanie Martinez
+- Afterglow by Taylor Swift.
 
 > Celebrity crush?
 - Lee Heeseung, Nishimura Riki, and 99+ more... 👀
