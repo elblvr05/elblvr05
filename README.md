@@ -1,6 +1,6 @@
 # Get To Know Me!
 
-In this page, you shall get to know who I am more and how I view my life! This page will consist of the **Basic Information**, **Interests**, and some **Fun Facts** along the way! The questions here are from Pinterest, so credits to the owner! Without further ado, let's start!
+In this page, you shall get to know who I am more and how I view my life! This page will consist of the **Basic Information** and some **Fun Facts**! The questions here are from Pinterest, so credits to the owner! Without further ado, let's start!
 
 🦋🦋🦋
 
@@ -31,35 +31,74 @@ In this page, you shall get to know who I am more and how I view my life! This p
 - Two dogs! One Japanese Spitz-Pomeranian mix and the cutest Aspin I have ever seen!
 
 > Friends?
-- A lot. I can't mention them all 🥲
+- A lot. I can't mention them all 🥴
 
 ### Here is our family picture! 👪
 
 ![fam](https://user-images.githubusercontent.com/98244023/165533835-b9e0e8d0-8fa6-43a7-a950-bc7590a28a5e.jpg)
 
-Woo! 😅 That was a long introduction! But we've only just began, next up are my Interests. So, if my interests sound interesting ~~pun intended haha~~, stay here and get to know me more!
+Woo! 😅 That was a long introduction! But we've only just began, next up are some facts about me. So, if that segment sounds interesting, stay here and get to know me more!
 
-_mini commercial break_ 🤩
 
-![34a70b676136697883ee08223153115c](https://user-images.githubusercontent.com/98244023/165758694-69a46dee-1a50-41c6-949e-1bac61faa31a.jpg)
+## Facts about me!
 
-## Interests
-
-> Favorite color?
+> My favorite color?
 - I like a lot of colors but Black is on the top of my list.
 
-> Favorite time of the week?
+> My favorite time of the week?
 - Friday night and Saturday morning! 
 
-> Favorite food?
+> My favorite food?
 - I. Love. Food. But Pizza is my no. 1 ever since I got a taste of that heavenly bread! 😍
 
-> Favorite drink?
+> My favorite drink?
 - Iced Coffee. The best.
 
-> Favorite Ice Cream Flavor?
+> My favorite Ice cream flavor?
 - COOKIES AND CREAM SUPREMACY!!
 
+> My favorite subject?
+- I don't think I have one, they are all equal to me <3 
 
+> My favorite movie?
+- I don't watch movies that much but the three Fear Street movies (Fear Street Part One: 1994, Fear Street Part Two: 1978, and Fear Street Part Three: 1666) are one of the best I have watched! I suggest it!
+
+> My favorite book?
+- It has to be Stay Awake, Agatha by SERIALSLEEPER.
+
+> My favorite animal?
+- I LOVE SEALS SO MUCH, THEY'RE SO ADORABLE! 
+
+> My favorite place that I have been to?
+- Fort Santiago in Intramuros, Manila.
+
+> My favorite song at the moment?
+- Pity Party by Melanie Martinez
+
+> Celebrity crush?
+- Lee Heeseung, Nishimura Riki, and 99+ more... 👀
+
+> Top 3 music genres?
+- Indie, K-pop, and Rnb.
+
+> Top 3 K-pop groups?
+- BTS, Enhypen, Seventeen.
+
+> Top 3 book genres?
+- Mystery, Fanfiction, Historical Fiction.
+
+_And lastly..._
+
+> How does your future hopefully look like for you?
+- I have graduated, I am in another country pursuing my dream, I am financially successful enough that I can send money to my parents to treat them without any worries if something is expensive. I have traveled the world, and I have achieved my goals in life. <3
+
+That was lengthy, huh? I hope I didn't bore you though! Well, that was the last one! I hope you had fun getting to know me. Thank you for reading this top to bottom. As a way to end this properly, I will be sharing my favorite quote. 
+
+“Don't be trapped in someone else's dream.” - Kim Taehyung, BTS
+
+![bibble](https://user-images.githubusercontent.com/98244023/165911992-07cdd246-fe14-4e53-a1e1-b111c9381716.jpg)
+
+
+_Farewell!_
 
 
